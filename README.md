@@ -1,1 +1,1 @@
-# Datenschutzerklaerung
+# Datenschutz
